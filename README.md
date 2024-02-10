@@ -1,0 +1,2 @@
+# Bananaautobounty
+by TriDepZaiHub[Premium]
